@@ -22,7 +22,10 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-George met the Unicorn King who granted him magic powers.
+George met the Unicorn King who granted him magic powers, and with a surprising turn of events, george used his new powers to remove the unicorn king's powers! George wanted to be the only lad with powers... but to his dismay, the wise unicorn king presumed this scenario might happen. As such, he took precautions. The unicorn king cast a spell on george's powers, before he gave them to him. The spell says that if George tries to take away the unicorn king's powers, he'll expload instantly.
+
+So there they were, George had powers for five seconds and tries to take away the Unicorn King's powers.
+BOOM. George exploaded. Unicorn King laughs. He lives happily ever after.
 The end.
 
 ## Cast
